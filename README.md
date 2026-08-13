@@ -29,6 +29,8 @@
 
  i also really love wolves (if you can't tell.) <br>
 
+ unfortunately won't be very excited if you're in the same fandoms as me !! i dont care what happens in other peoples lives im sorry :(( <br>
+
 🪽 i am the owner of ESm and RsO !!!!!!! (very very proud) <br>
 > ##### also SHAMELESS plug if you want to join/know more about either dm me (.10th. on discord) <br>
 >> ###### esm = regi | rso = lab <br>
