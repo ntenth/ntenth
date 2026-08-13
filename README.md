@@ -7,7 +7,7 @@
 </p>
 <p align="center">
   <br>
-  <a href="https://pronouns.cc/@10th"> pronouns.cc </a> | rentry (wip)
+  <a href="https://pronouns.cc/@10th"> pronouns.cc </a> | <a href="https://10th.atabook.org/"> atabook </a> 
 </p>
 <div align="center">
 <details>
