@@ -8,13 +8,6 @@
 <br>
 <hr>
 <br>
-<p align="center">
-  <br>
-✦ i'm usually these two on <i>docks</i> :
-</p>
-<br>
-<p align="center">
-  <img width="150" src="pony-town-@the_convict - il _ dniuf-sit-padded-16x (1).png"><img width="150" src="pony-town-@warfstache _ markcu-dance-sit-padded-16x.gif">
 </p>
 <br>
 <div align="center">
