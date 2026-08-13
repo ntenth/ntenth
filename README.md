@@ -39,22 +39,6 @@
 ###### i'll see you in the upside-down! (and that's not a stranger things reference) <br>
 
 </details> 
-<details>
-  <summary>(kin) list</summary>
-
-  ###### i have more!! but i didn't put them in here as they're not as big kins for me <br>
-  
-  CURRENT : warfstache , simon (the convict) <br>
-##### patrick jane <br>
-##### ryland grace <br>
-##### colt seavers <br>
-##### peter parker (mcu , tom holland) <br>
-##### flamefrags (uu) <br>
-##### spokeishere (uu) <br>
-##### parrotx2 (uu) <br> 
-###### no wemmbu isnt here <br>
-
-</details>
 </div>
 <p align="center">
 <img src="Untitled1584_20260813231242.png">  
