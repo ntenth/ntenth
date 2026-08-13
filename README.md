@@ -5,11 +5,10 @@
 <p align="center">
   <img src="Untitled1584_20260813212444.png">
 </p>
-<br>
-<hr>
-<br>
+<p align="center">
+  <br>
+  <a href="https://pronouns.cc/@10th"> pronouns.cc </a> | rentry (wip)
 </p>
-<br>
 <div align="center">
 <details>
   <summary>byi</summary>
@@ -55,16 +54,6 @@
 
 </details>
 </div>
-<br>
-<hr>
-<br>
-<p align="center">
-  <br>
-  <a href="https://pronouns.cc/@10th"> pronouns.cc </a> | rentry (wip)
-</p>
-<br>
-<hr>
-<br>
 <p align="center">
 <img src="Untitled1584_20260813231242.png">  
 </p>
