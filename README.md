@@ -28,6 +28,7 @@
 > ##### i am a <b>fictkin</b> but i hardly go by that term. <br>
 
  i also really love wolves (if you can't tell.) <br>
+ > #### am might be an otherpaw, still putting research into it 🤔 <br>
 
  unfortunately won't be very excited if you're in the same fandoms as me !! i dont care what happens in other peoples lives im sorry :(( <br>
 
