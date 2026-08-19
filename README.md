@@ -16,7 +16,7 @@
   🕸️ - hi ! i'm 10th !!!! <br>
   𖥔 <i> names ! </i>  just call me by whichever skin im using ! <br>
   > ###### will usually change names according to my stinking brain <br>
-♟️ current(s) : warf(stache) , simon , patrick (jane) , 10th <br>
+♟️ current(s) : warf(stache) , simon , driver <br>
 
 ⚠️ i am currently under the age of 17 ! <br>
   > #### that means 18+ BEWARE!! <br>
@@ -30,7 +30,7 @@
  i also really love wolves (if you can't tell.) <br>
  > ##### am an otherpaw, though still putting research into it 🤔 <br>
 
- unfortunately won't be very excited if you're in the same fandoms as me !! i dont care what happens in other peoples lives im sorry :(( <br>
+ unfortunately won't be very excited if you're in the same fandoms as me !! i dont really mind what happens in other peoples lives im sorry :(( <br>
 
 🪽 i am the owner of ESm and RsO !!!!!!! (very very proud) <br>
 > ##### also SHAMELESS plug if you want to join/know more about either dm me (.10th. on discord) <br>
