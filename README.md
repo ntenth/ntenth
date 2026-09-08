@@ -72,7 +72,15 @@
       <img height=85px src="Untitled1599_20260908205908.png">
       <br>
     </div>
+  <br>
+  <br>
+  <br>
+    <img align="center" width=600px src="Untitled1599_20260908202500.png">
+  <br>
+  <br>
+  <br>
 </details> 
+
 </div>
 <p align="center"> 
   <img src="Untitled1584_20260813231242.png">
