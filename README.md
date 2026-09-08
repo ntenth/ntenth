@@ -40,7 +40,7 @@
     <br> 
     <img align="right" src="Untitled1600_20260908212922.png">
     <div align="center">
-      <img height=90px src="Untitled1599_20260908205908.png">
+      <img height=85px src="Untitled1599_20260908205908.png">
       <br>
       <br>
       <br>
@@ -69,7 +69,7 @@
       </ul>
     </details>
       <br>
-      <img height=90px src="Untitled1599_20260908205908.png">
+      <img height=85px src="Untitled1599_20260908205908.png">
       <br>
     </div>
 </details> 
