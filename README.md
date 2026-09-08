@@ -34,10 +34,11 @@
     <i>it/its</i> , he/him , any
     <br><sub><b>i do not respond to neos (with respect to neousers)</b></sub>
   </p>
+    <img height=300px src="Untitled1599_20260908205908.png">
+  <p></p>
 </details> 
 </div>
-<p align="center">
-<img src="Untitled1584_20260813231242.png">  
+<p align="center"> 
 </p>
 <blockquote>
   <p align="center">
