@@ -21,7 +21,6 @@
     <br>
     <br>
     <br>
-    <br>
     <i> 🐾 tenth</i> + <b>claims in regis</b>
     <br><sub><i><b>prefered if you call me by what skin you saw me in!</b> that's usually the kin im going by.</i></sub>
     <br><sub>github nickname changes accordingly! mainly wade , simon , driver/k , warfstache. </sub>
@@ -30,7 +29,6 @@
     <br>
     <i>it/its</i> , he/him , any
     <br><sub><b>i do not respond to neos (with respect to neousers)</b></sub>
-    <br>
     <br>
     <br>
     <br>
