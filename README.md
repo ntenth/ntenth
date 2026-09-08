@@ -39,6 +39,7 @@
 </details> 
 </div>
 <p align="center"> 
+  <img src="Untitled1584_20260813231242.png">
 </p>
 <blockquote>
   <p align="center">
