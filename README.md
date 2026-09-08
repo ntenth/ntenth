@@ -12,13 +12,12 @@
 <div align="center">
 <details>
   <summary>byi</summary>
-
-
-
-wip !!!
-
-<img src="1975e59b2d6ccae89fd05170b741d249.jpg">
-
+<div align="center">
+<img width=700px src="Untitled1599_20260908202512.png">
+</div>
+  <div align="left">
+    
+  </div>
 </details> 
 </div>
 <p align="center">
