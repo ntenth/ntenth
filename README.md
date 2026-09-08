@@ -25,7 +25,7 @@
     <br><sub><i><b>prefered if you call me by what skin you saw me in!</b> that's usually the kin im going by.</i></sub>
     <br><sub>github nickname changes accordingly! mainly wade , simon , driver/k , warfstache. </sub>
     <br>
-    <img height=90px src="Untitled1599_20260908205908.png">
+    <img height=85px src="Untitled1599_20260908205908.png">
     <br>
     <i>it/its</i> , he/him , any
     <br><sub><b>i do not respond to neos (with respect to neousers)</b></sub>
