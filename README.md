@@ -10,8 +10,6 @@
   <a href="https://pronouns.cc/@10th"> pronouns.cc </a> | <a href="https://10th.atabook.org/"> atabook </a> 
 </p>
 <br>
-<hr>
-<br>
 <div align="center">
 <details>
   <summary>byi</summary>
@@ -29,13 +27,18 @@
     <br><sub><i><b>prefered if you call me by what skin you saw me in!</b> that's usually the kin im going by.</i></sub>
     <br><sub>github nickname changes accordingly! mainly wade , simon , driver/k , warfstache. </sub>
     <br>
-    <hr>
+    <br>
+    <img height=90px src="Untitled1599_20260908205908.png">
+    <br>
     <br>
     <i>it/its</i> , he/him , any
     <br><sub><b>i do not respond to neos (with respect to neousers)</b></sub>
-  </p>
-    <img height=300px src="Untitled1599_20260908205908.png">
-  <p></p>
+    <br>
+    <br>
+    <br>
+    <br>
+    <hr>
+    <br>
 </details> 
 </div>
 <p align="center"> 
