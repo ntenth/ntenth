@@ -13,9 +13,8 @@
 <div align="center">
 <details>
   <summary>byi</summary>
-<div align="center">
-<img width=500px src="Untitled1599_20260908202512.png">
-</div>
+  <br>
+<img align="center" width=600px src="Untitled1599_20260908202512.png">
     <img align="left" width=500px src="tumblr_7b47e339c6285fa36e9da2c9a8cd424b_4e92d89c_640.png">
   <br><p align="center">
     <br>
@@ -37,8 +36,13 @@
     <br>
     <br>
     <br>
-    <hr>
     <br>
+    <br>
+    <div align="left">
+      <details>
+      <summary><b><i>byf - </i></b></summary>
+    </details>
+    </div>
 </details> 
 </div>
 <p align="center"> 
