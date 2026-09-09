@@ -53,7 +53,8 @@
     <details>
       <summary><b><i> kins </i></b></summary>
       deadpool / wade , simon (iron lung) , warfstache (markcu) , patrick jane (the mentalist) , 10th doctor (doctor who) , barry allen , spiderman / peter parker , flamefrags (uu) , parrotx2 (uu) 
-      <sub><p> will be adjusted according to shifted kin and preference every once in a while ^_^ </p></sub>
+      <sub><p> will be adjusted according to shifted kin</p></sub>
+        <sub><p>and preference every once in a while ^_^ </p></sub>
     </details>
     <details>
       <summary><b><i> dni </i></b></summary>
