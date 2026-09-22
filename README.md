@@ -49,7 +49,7 @@
         <p>  i do not follow back unless i know you / consider you a friend, and just get awkward around people i don't consider acquaintances. if i'm talking dry or just not talking at all, don't feel offended. i warm up after a few days. sometimes it may mean i'm just tired.</p>
         <p>  <u><b>i am a fictionkin.</b></u> i don't like using the term, so i will not say that often. i shift through kins day-to-day (sometimes less frequent if the kin is recently obtained) and will act differently with every name i place on myself. i will act dry at certain times (even with acquaintences and friends) and sometimes will be more unserious. </p>
         <p>  i do not get excited if you're in the same fandoms as me. i usually don't even know what to reply to being in the same fandomspace as others. please don't get offended if my replies feel dry or uninterested. </p>
-        <p>also if youre aaaa spideypool (andrew g. spider-man/deadpool mainly but tom h. spider-man/deadpool is ok too), bloodymary, healymarch, coldflash, sonadow shipper pls approach and talk abt it with me i love you</p>
+        <p>also if youre aaaa hijack/frostcup, spideypool, bloodymary, coldflash, sonadow shipper pls approach and talk abt it with me i love you</p>
     </details>
     <details>
       <summary><b><i> kins </i></b></summary>
