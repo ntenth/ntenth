@@ -53,7 +53,7 @@
     </details>
     <details>
       <summary><b><i> kins </i></b></summary>
-      deadpool / wade , simon (iron lung) , jack frost (rotg) , spider-man / peter parker (tom holland) , warfstache (markcu) , patrick jane (the mentalist) , 10th doctor (doctor who) , barry allen , flamefrags (uu) , parrotx2 (uu) 
+      jack frost (rotg) , deadpool / wade , simon (iron lung) , spider-man / peter parker (tom holland) , warfstache (markcu) , patrick jane (the mentalist) , 10th doctor (doctor who) , barry allen , flamefrags (uu) , parrotx2 (uu) 
       <br>
       <sub><p> will be adjusted according to shifted kin</p></sub>
         <sub><p>and preference every once in a while ^_^ </p></sub>
